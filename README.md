@@ -1,0 +1,1 @@
+# tugas-2_analisis-datakategorik
